@@ -8,7 +8,7 @@ Wishing you a fantastic and prosperous New Year! May it be filled with joy, succ
 
 Unleash the cutting power with the Total Cut-Off Saw 2350W - TS92035526, a powerhouse for all your cutting needs! 💪🪚
 
-![Total Cut Off Saw](images/total_cut_off_saw_preview.png)
+![Total Cut Off Saw](photo_2024-01-01_09-03-00.jpg)
 
 ## Specifications:
 
@@ -45,13 +45,13 @@ Upgrade your electrical game with the Full Electrical Toolbox – the ultimate t
 - **Contents:** A comprehensive set of tools for electrical work.
 - **Price:** 6500 birr
 
-![Electrical Toolbox](images/electrical_toolbox_preview.png)
+![Electrical Toolbox](photo_2024-01-01_09-06-31.jpg)
 
 ### 🚚 **Free Delivery:**
 Enjoy the convenience of free delivery right to your doorstep. 🌐🎁
 
 📞 **Contact Us:**
-- Call us at +251988760950
+- Call us at +251954938537
 
 👉 **For More Deals and Updates, Join our Telegram Channel:**
 [LiYu Tools Telegram Channel](https://t.me/liyutools)
